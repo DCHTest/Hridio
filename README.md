@@ -1,2 +1,0 @@
-# Hridio
-Chao The Gioi
